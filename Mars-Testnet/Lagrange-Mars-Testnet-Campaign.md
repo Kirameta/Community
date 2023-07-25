@@ -1,4 +1,4 @@
-# Lagrange Mars Testnet: 1,000,000 LAG Giveaway
+# Lagrange Mars Testnet:1,000,000 LAG Giveaway
 
 ⏰ Event Duration: 7th August, 0:01 (EST) - 3rd September, 23:59 (EST)
 
